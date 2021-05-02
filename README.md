@@ -1,4 +1,3 @@
-# xavier-owens-favorite-skins
 [varvalian](https://drive.google.com/file/d/1w0-23LSUUXdpmapsTN1lbBVJFW69iRjt/view?usp=sharing)
 
 [rektygon](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view?usp=sharing)
