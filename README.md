@@ -1,6 +1,6 @@
 [varvalian](https://drive.google.com/file/d/1w0-23LSUUXdpmapsTN1lbBVJFW69iRjt/view?usp=sharing)
 
-![1549355590_3](https://user-images.githubusercontent.com/83545025/116818627-9947dd80-ab96-11eb-82c5-39b5464ee341.jpg)
+![screenshot028](https://user-images.githubusercontent.com/83545025/116820045-360d7980-ab9d-11eb-905d-36e651409fff.jpg)
 
 [rektygon](https://drive.google.com/file/d/1m5zptef-Cr5UXtXBdtu0LFrV_Sldb6hr/view?usp=sharing)
 
