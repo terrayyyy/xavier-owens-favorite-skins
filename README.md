@@ -1,6 +1,6 @@
 # here is a list of my favorite skins
 
-# check out my [youtube channel](https://www.youtube.com/)
+# check out my [youtube channel](https://www.youtube.com/channel/UCY-rvcHITpWIU9echCM2eMA)
 
 # [kablaze](https://circle-people.com/wp-content/Skins/kablaze/kablaze%202020-08-11.osk)
 
