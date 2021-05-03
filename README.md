@@ -87,3 +87,7 @@
 # [bubbleman](https://circle-people.com/wp-content/Skins/Bubbleman/Bubbleman%202020-07-04.osk)
 
 ![screenshot133](https://user-images.githubusercontent.com/83545025/116833764-3893c180-abe5-11eb-972f-b48975161313.jpg)
+
+# [kablaze](https://circle-people.com/wp-content/Skins/kablaze/kablaze%202020-08-11.osk)
+
+![screenshot135](https://user-images.githubusercontent.com/83545025/116833881-d1c2d800-abe5-11eb-80e2-924fd318fbd6.jpg)
