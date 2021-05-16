@@ -2,6 +2,8 @@
 
 # check out my [youtube channel](https://www.youtube.com/channel/UCY-rvcHITpWIU9echCM2eMA)
 
+# [favorite cursor](https://drive.google.com/drive/folders/1jkLrdkwF_FApMoJ1H_Pumz3zQczeSyZz?usp=sharing)
+
 # [kablaze](https://circle-people.com/wp-content/Skins/kablaze/kablaze%202020-08-11.osk)
 
 ![screenshot135](https://user-images.githubusercontent.com/83545025/116833881-d1c2d800-abe5-11eb-80e2-924fd318fbd6.jpg)
