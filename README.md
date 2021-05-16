@@ -34,10 +34,6 @@
 
 ![screenshot042](https://user-images.githubusercontent.com/83545025/116820113-7ff65f80-ab9d-11eb-8065-c7a359a33ab6.jpg)
 
-# [axarious](https://drive.google.com/file/d/1ltepFhpVYcHveWBe14dtQCMz6jKA6y78/view?usp=sharing)
-
-![screenshot114](https://user-images.githubusercontent.com/83545025/116833143-bf469f80-abe1-11eb-81df-6c517d999699.jpg)
-
 # [jace](https://drive.google.com/file/d/1vWijGNzHwW_KjJhPOQ_xj44CLWd88iCW/view?usp=sharing)
 
 ![screenshot056](https://user-images.githubusercontent.com/83545025/116820123-87b60400-ab9d-11eb-8bac-6a697dce7a31.jpg)
@@ -69,10 +65,6 @@
 # [karthy](https://drive.google.com/file/d/1O8G396pxV4ZBgHIEmJk_SL_zcKzqy8Cw/view?usp=sharing)
 
 ![screenshot091](https://user-images.githubusercontent.com/83545025/116820167-c3e96480-ab9d-11eb-9805-9ca12047a2ee.jpg)
-
-# [umbre](https://drive.google.com/file/d/1NNnqmq0TPkp50VUR5rlfeCDCAEBaypx0/view?usp=sharing)
-
-![screenshot097](https://user-images.githubusercontent.com/83545025/116820176-ca77dc00-ab9d-11eb-9a85-df43e4c034b8.jpg)
 
 # [flyingtuna](https://drive.google.com/file/d/1SVtUUvo4o2DUwQ1Pf2Xb0v4eDblvvovq/view?usp=sharing)
 
