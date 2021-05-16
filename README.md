@@ -91,3 +91,8 @@
 # [shigetora](https://circle-people.com/wp-content/Skins/Cookiezi/Cookiezi%2017%202016-02-27.osk)
 
 ![screenshot110](https://user-images.githubusercontent.com/83545025/116820190-d95e8e80-ab9d-11eb-88a2-401762506edc.jpg)
+
+# skin folder
+
+![screenshot110](https://user-images.githubusercontent.com/83545025/118406092-26198d80-b6a5-11eb-9a3e-0ec68749dbab.png)
+![screenshot110](https://user-images.githubusercontent.com/83545025/118406115-37fb3080-b6a5-11eb-9315-2c52536f97a7.png)
