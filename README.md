@@ -4,7 +4,7 @@
 
 # [favorite cursor](https://drive.google.com/drive/folders/1jkLrdkwF_FApMoJ1H_Pumz3zQczeSyZz?usp=sharing)
 
-#ranked from most used to least used
+# ranked from most used to least used
 
 ![screenshot135](https://user-images.githubusercontent.com/83545025/118405830-d1c1de00-b6a3-11eb-840e-7026bdb5a6a1.png)
 
