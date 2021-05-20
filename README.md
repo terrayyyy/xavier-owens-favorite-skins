@@ -94,5 +94,4 @@
 
 # skin folder
 
-![screenshot110](https://user-images.githubusercontent.com/83545025/118406092-26198d80-b6a5-11eb-9a3e-0ec68749dbab.png)
-![screenshot110](https://user-images.githubusercontent.com/83545025/118406115-37fb3080-b6a5-11eb-9315-2c52536f97a7.png)
+![image](https://user-images.githubusercontent.com/83545025/118991466-f8d32500-b9ad-11eb-9dd8-e5f4546e8b2f.png)
