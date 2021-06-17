@@ -2,8 +2,6 @@
 
 # check out my [youtube channel](https://www.youtube.com/channel/UCY-rvcHITpWIU9echCM2eMA)
 
-# skins are ordered from most used to least used
-
 # [ameliorate nm terray edit](https://drive.google.com/file/d/1Y34xsP6DpE54VR0ji6CPOLBmMzN8_Gqz/view?usp=sharing)
 
 ![screenshot066](https://user-images.githubusercontent.com/83545025/122404207-3a54f100-cfa9-11eb-86d4-d0659dd346d7.jpg)
