@@ -22,7 +22,7 @@
 
 # [varvalian hr terray edit](https://drive.google.com/file/d/1Si8XBRhXUMXnRqeBtul-C6gRH8BdIn4p/view?usp=sharing)
 
-![screenshot048](https://user-images.githubusercontent.com/83545025/122405058-ef87a900-cfa9-11eb-8b7f-ac1a254916ef.jpg)
+![screenshot040](https://user-images.githubusercontent.com/83545025/122405313-252c9200-cfaa-11eb-99fd-895a7f435ab2.jpg)
 
 # [xooty hd terray edit](https://drive.google.com/file/d/1gpR0mtLz8Kbvu3t_RqF0qWQv20OLFPjd/view?usp=sharing)
 
