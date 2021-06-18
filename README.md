@@ -18,9 +18,9 @@
 
 ![screenshot059](https://user-images.githubusercontent.com/83545025/122404961-d8e15200-cfa9-11eb-98e9-d1bf7142970d.jpg)
 
-# [varvalian hr terray edit](https://drive.google.com/file/d/1Si8XBRhXUMXnRqeBtul-C6gRH8BdIn4p/view?usp=sharing)
+# [varvalian hr terray edit](https://drive.google.com/file/d/1kQ9rZzIus9ogIreeaSa48XT6n4GvQv8z/view?usp=sharing)
 
-![screenshot040](https://user-images.githubusercontent.com/83545025/122405313-252c9200-cfaa-11eb-99fd-895a7f435ab2.jpg)
+![screenshot068](https://user-images.githubusercontent.com/83545025/122505751-2d76e280-d027-11eb-8398-41c22d0f613d.jpg)
 
 # [xooty hd terray edit](https://drive.google.com/file/d/1gpR0mtLz8Kbvu3t_RqF0qWQv20OLFPjd/view?usp=sharing)
 
