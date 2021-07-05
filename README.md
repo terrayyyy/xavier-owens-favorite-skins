@@ -2,7 +2,7 @@
 
 # check out my [youtube channel](https://www.youtube.com/channel/UCY-rvcHITpWIU9echCM2eMA)
 
-# [mapping skin] (https://drive.google.com/file/d/1JrIwLs23fueMOevE55VJDQiIfvRwbWNG/view?usp=sharing)
+# [mapping skin](https://drive.google.com/file/d/1JrIwLs23fueMOevE55VJDQiIfvRwbWNG/view?usp=sharing)
 
 ![screenshot066](https://cdn.discordapp.com/attachments/674540673071841292/861594637423345704/unknown.png)
 
