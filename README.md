@@ -1,6 +1,10 @@
-# here is a list of my favorite (terray edited) skins
+# here is a list of my terray edited skins
 
 # check out my [youtube channel](https://www.youtube.com/channel/UCY-rvcHITpWIU9echCM2eMA)
+
+# [mapping skin] (https://drive.google.com/file/d/1JrIwLs23fueMOevE55VJDQiIfvRwbWNG/view?usp=sharing)
+
+![screenshot066](https://cdn.discordapp.com/attachments/674540673071841292/861594637423345704/unknown.png)
 
 # [ameliorate nm terray edit](https://drive.google.com/file/d/1Y34xsP6DpE54VR0ji6CPOLBmMzN8_Gqz/view?usp=sharing)
 
