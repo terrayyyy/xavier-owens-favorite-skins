@@ -6,6 +6,10 @@
 
 ![screenshot066](https://cdn.discordapp.com/attachments/674540673071841292/861594637423345704/unknown.png)
 
+# [ekoro nm terray edit](https://drive.google.com/file/d/1GrYJj1jARmHFNKO5gE_2ZIQ2G2Xzn01e/view?usp=sharing)
+
+![screenshot002](https://user-images.githubusercontent.com/83545025/128626438-d6442f71-9c8f-4a55-8dfa-d7a703689fdd.jpg)
+
 # [ameliorate nm terray edit](https://drive.google.com/file/d/1Y34xsP6DpE54VR0ji6CPOLBmMzN8_Gqz/view?usp=sharing)
 
 ![screenshot066](https://user-images.githubusercontent.com/83545025/122404207-3a54f100-cfa9-11eb-86d4-d0659dd346d7.jpg)
